@@ -4,4 +4,4 @@ dilara.leamen@kyndryl.com
 
 www.kyndryl.com
 
-![Kyndryl-Logo-Vector svg-](https://github.com/user-attachments/assets/d4c9331e-cd64-4133-b1e9-d1c5d476f278)
+![image](https://github.com/user-attachments/assets/1c397bfd-d7b1-4f98-995b-56149e164a74)
