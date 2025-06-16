@@ -1,4 +1,4 @@
 ## Dilara J. Leamen
 ### Machine Learning & AI Developer
 
-![image](https://github.com/user-attachments/assets/207332c6-2b7c-4931-a37c-11cddaf59194)
+![image](https://github.com/user-attachments/assets/43768766-cd8c-4b47-a36a-3cc999e324d2)
